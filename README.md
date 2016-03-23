@@ -1,6 +1,6 @@
 # Practice-Repository
 
-Michael Wolf - Hello World
+Michael (as club account) - Hello World
 
 Son Tran
 
